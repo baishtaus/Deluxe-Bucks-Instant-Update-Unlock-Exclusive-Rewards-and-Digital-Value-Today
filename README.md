@@ -4,6 +4,9 @@ The digital era is transforming how we access entertainment, shop online, and re
 
 [Chance To Win $25,000](https://smrturl.co/a/s4f603f7e94/10707?s1=)
 
+[Get Mystery Gift Card](https://smrturl.co/a/s4f603f7e94/9860?s1=)
+
+
 **What Are Deluxe Bucks?**
 
 Deluxe Bucks are a form of digital currency or credit that can be redeemed across a range of platforms. They're especially popular in gaming communities, digital marketplaces, and reward-based platforms. Think of them as a prepaid currency that offers users instant purchasing power.
