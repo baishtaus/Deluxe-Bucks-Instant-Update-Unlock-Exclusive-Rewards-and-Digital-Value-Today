@@ -6,6 +6,8 @@ The digital era is transforming how we access entertainment, shop online, and re
 
 [Get Mystery Gift Card](https://smrturl.co/a/s4f603f7e94/9860?s1=)
 
+[TheAmericanSweepstakes](https://smrturl.co/a/s4f603f7e94/1511?s1=)
+
 
 **What Are Deluxe Bucks?**
 
